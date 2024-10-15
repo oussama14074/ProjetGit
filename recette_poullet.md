@@ -13,7 +13,7 @@
 2. Frotter le poulet avec l'huile d'olive.
 3. Assaisonner avec le sel, le poivre et les herbes.
 4. Rôtir pendant 1 heure.
-5. Laisser reposer le poulet avant de servir.
+5. Laisser reposer le poulet avant de servir..
 
 
 ## Temps de Préparation
